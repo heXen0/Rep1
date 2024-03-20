@@ -1,2 +1,4 @@
 # Rep1
-Enric te queremos
+Enric te quiero, apruebame pls
+
+Estava malo, lo siento
